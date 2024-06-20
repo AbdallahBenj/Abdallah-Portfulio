@@ -1,4 +1,4 @@
-# Abdallah-Portfulio
+# Abdallah Portfulio
 
 - 👋 Hi, I’m @Abdallah
 - 👀 I’m interested in ...
